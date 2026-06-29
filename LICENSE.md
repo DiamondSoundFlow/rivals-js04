@@ -1,4 +1,4 @@
-
+vip rivals Script offers the most advanced rivals Script, with esp and anti-ban. Perfect for dominating any match.
 
 
 
